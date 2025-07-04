@@ -17,4 +17,4 @@
 总的来说，优质的内容、清晰的分类、流畅的播放体验和安全的环境，是我们打造日本AV免费视频平台的核心。我们致力于为用户提供一个全方位、高品质的观影平台，让每一位喜欢日本AV的用户都能放心、方便地享受免费高清资源。未来，我们将继续保持内容更新和技术优化，确保大家获得最佳的观影体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp5 ）</span>
